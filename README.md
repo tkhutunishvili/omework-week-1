@@ -1,1 +1,0 @@
-# omework-week-1
